@@ -12,12 +12,7 @@ Welcome to my GitHub profile!
 - This is my new GitHub account
 - Previously used username: **chui-tracy**
 - You can find me using keyword: **吹灰不起**
----
 
-## About me
-
-- This is my new GitHub account  
-- Previously used username: **chui-tracy**  
 - Also known as: **吹灰不起**  
 
 I am a fan creator focusing on **黑邪（Heixie）** related content.
