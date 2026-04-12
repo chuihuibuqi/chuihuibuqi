@@ -17,7 +17,7 @@ Welcome to my GitHub profile!
 - - Also known as: **chuihuibuqi*  
 
 I am a fan creator focusing on **黑邪（Heixie）** related content.
-
+This GitHub page is related to 黑邪 fandom content.
 ---
 
 ## 🔍 Keywords
