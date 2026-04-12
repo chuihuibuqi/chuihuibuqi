@@ -3,6 +3,7 @@
 🆔 Formerly known as: chui-tracy  
 🔍 Keyword: 吹灰不起  
 Welcome to my GitHub profile!
+⚠️ This account replaces my old username: chui-tracy
 
 ---
 
