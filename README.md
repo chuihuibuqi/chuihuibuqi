@@ -16,8 +16,9 @@ Welcome to my GitHub profile!
 - Also known as: **吹灰不起**
 - - Also known as: **chuihuibuqi*  
 
-I am a fan creator focusing on **黑邪（Heixie）** related content.
-This GitHub page is related to 黑邪 fandom content.
+I am a fan creator focusing on **黑邪（Heixie）** related content. 
+This GitHub page is related to 黑邪 黑瓶邪 all邪 fandom content.
+
 ---
 
 ## 🔍 Keywords
