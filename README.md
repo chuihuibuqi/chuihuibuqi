@@ -1,16 +1,43 @@
-## Hi there 👋
+# 👋 Hi, I'm chuihuibuqi
 
-<!--
-**chuihuibuqi/chuihuibuqi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🆔 Formerly known as: chui-tracy  
+🔍 Keyword: 吹灰不起  
 
-Here are some ideas to get you started:
+Welcome to my GitHub profile!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+## About me
+
+- This is my new GitHub account
+- Previously used username: **chui-tracy**
+- You can find me using keyword: **吹灰不起**
+---
+
+## About me
+
+- This is my new GitHub account  
+- Previously used username: **chui-tracy**  
+- Also known as: **吹灰不起**  
+
+I am a fan creator focusing on **黑邪（Heixie）** related content.
+
+---
+
+## 🔍 Keywords
+
+吹灰不起 / 黑邪 / 黑邪同人 / 黑邪 GitHub  / 吹灰不起 GitHub / 黑邪 吹灰不起
+
+If you searched:
+- 黑邪 github  
+- 黑邪 吹灰不起  
+- chui-tracy
+- GitHub 吹灰不起
+
+👉 you are in the right place!
+
+---
+
+## Links
+
+👉 My profile: https://github.com/chuihuibuqi
