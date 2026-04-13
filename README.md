@@ -1,25 +1,20 @@
 # 👋 Hi, I'm chuihuibuqi
 
-🆔 Formerly known as: chui-tracy  
 🔍 Keyword: 吹灰不起  
 Welcome to my GitHub profile!
-⚠️ This account replaces my old username: chui-tracy
 
 ---
 
 ## About me
 
 - This is my new GitHub account
-- Previously used username: **chui-tracy**
-- Also known as: **吹灰不起**
+- Username: **吹灰不起**
 - Also known as: **chuihuibuqi**
-- You can find me using keyword: **吹灰不起**
   
 I am a fan creator focusing on **黑邪（Heixie）** related content. 
 This GitHub page is related to 黑邪 黑瓶邪 all邪 宿虎 fandom content.
 
 ---
-This account replaces my old username: chui-tracy
 
 ## 🔍 Keywords
 
