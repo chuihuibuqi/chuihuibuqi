@@ -2,6 +2,7 @@
 
 🔍 Keyword: 吹灰不起  
 Welcome to my GitHub profile!
+拉到最底下就是TXT同人文档保存处.
 
 ---
 
