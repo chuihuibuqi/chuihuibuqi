@@ -1,4 +1,4 @@
-# 👋 Hi, I'm chuihuibuqi
+# 👋 Hi, I'm ChuiHuiBuQi
 
 🔍 Keyword: 吹灰不起  
 Welcome to my GitHub profile!
@@ -10,7 +10,7 @@ Welcome to my GitHub profile!
 
 - This is my new GitHub account
 - Username: **吹灰不起**
-- Also known as: **chuihuibuqi**
+- Also known as: **ChuiHuiBuQi**
   
 I am a fan creator focusing on 黑邪 黑瓶邪 all邪 宿虎 蒙克 伦克 fandom content. 
 目前主推是蒙克和黑邪，产的cp如无标注都是only向，但作者口味偏杂食。
